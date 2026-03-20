@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @merediththejedi
 - 👀 I’m interested in becoming the best creative I can be.
-- 🌱 I’m currently learning Creative Technology @ smu
+- 🌱 Advertising copywriter & Creative Technology MA
 
 <!---
 merediththejedi/merediththejedi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
